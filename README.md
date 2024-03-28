@@ -8,3 +8,7 @@ Video 1
 Video 2:
 
 
+https://github.com/Sujan-Roy/RAG-ChatGPT-/assets/21309722/2325efea-332f-43e5-8515-05e9809f64f3
+
+
+
